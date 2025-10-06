@@ -1,1 +1,2 @@
-# La-elecci-n-de-las-razas-bovinas.
+# La-elección-de-las-razas-bovinas
+La distribución geográfica de las majadas argentinas y su variación cuantitativa ha estado orientada por un proceso de refinamiento cuya finalidad estuvo en su momento definida por las razas a las que acordaba preferencia. El período de minimización y el de la influencia del Lincoln constituyen en efecto las características de dos épocas destinadas, la primera a producir lana de calidad y la segunda el carnero tipo frigorífico. 
